@@ -1,6 +1,6 @@
 ## 公司官网
 
-https://www.botorange.com/、
+https://www.botorange.com
 
 ## 产品地址
 
